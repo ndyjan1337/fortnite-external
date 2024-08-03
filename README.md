@@ -7,3 +7,6 @@ Remake of this src is getting sold as a slotted cheat rn.
 Oh yeah and dont be a retard like this (below) Telling me he ratted me eventhough it got leaked for 5h and taken down :))))
 
 ![alt text](https://github.com/ndyjan1337/fortnite-external/blob/main/images/image.png?raw=true)
+
+
+Do what you want w that source. Big props still go to hus 
